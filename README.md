@@ -1,1 +1,1 @@
-# EOS
+# Economies of Scale
